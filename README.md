@@ -6,84 +6,129 @@ skype : BQ318
 
 MMORPG
 https://play.google.com/store/apps/details?id=com.wot7.tw870sy&hl=zh_TW 
+
 https://itunes.apple.com/tw/app/hei-zhan-shenno-yong-zhe-xin/id864823769?mt=8
 
+
 ---------- HTC Game ------------
+
 http://vivefun.com/vivefun/
+
 https://www.youtube.com/watch?v=NFBQLmXgfAE
+
 https://youtu.be/GcJDYXnKD2Y
+
 https://youtu.be/PLtAzsm_C9k 
 
 ---------- RTS Game(Age of Kingdom) ------------
+
 https://play.google.com/store/apps/details?id=com.abc.AgeofKingdomsHD&hl=en
 
 ---------- AR Zombie game ------------
+
 https://play.google.com/store/apps/details?id=com.maniaco.zombiewar360&hl=en
 
 ---------- Mobile CS game (MultiPlayer) ------------
+
 https://play.google.com/store/apps/details?id=com.gt.test&hl=en
+
 https://itunes.apple.com/us/app/real-counter-strike-online-fps/id1197863891?mt=8
+
 https://play.google.com/store/apps/details?id=com.counterterrorist.striketheterrorfps
 
+
 ----------- Super Mario Game -----------
+
 https://play.google.com/store/apps/details?id=com.pooh.KrazyKris
+
 https://itunes.apple.com/us/app/krazy-kriss/id1224519085?ls=1&mt=8
 
 ------------ Talking Tom -------------
+
 https://drive.google.com/open?id=0BwS77LJFDVDcMHNmajA3TE1uWkE
 
 ------------ Endless Runner game -------------
+
 https://drive.google.com/open?id=0BwS77LJFDVDcVlhHbzN1Qk1PUk0
 
 ------------ Endless Monster Rush game -------------
+
 https://play.google.com/store/apps/details?id=com.stomstudio.monsterrush&hl=en
+
 https://itunes.apple.com/us/app/face-monster-rush/id1234509563?mt=8
 
+
 ------------ Match3 game -------------
+
 https://play.google.com/store/apps/details?id=com.Pooh.EmojiCrush
+
 https://play.google.com/store/apps/details?id=com.drj.sweetapp.berrymatch3&hl=en
 
 ------------ Puzzle game -------------
+
 https://play.google.com/store/apps/details?id=com.bitmango.rolltheballunrollme
+
 https://itunes.apple.com/ph/app/roll-the-ball-slide-puzzle/id961875786?mt=8
 
 ------------ PipeFlow game -------------
+
 https://play.google.com/store/apps/details?id=com.sapparray.waterflow
 
+
 ------------ Dress App -------------
+
 https://play.google.com/store/apps/details?id=com.Fashion.Studio.Dress.Up
 
 ------------ Tunnel Rush -------------
+
 https://play.google.com/store/apps/details?id=com.cuc.TunnelRush
 
 ------------ Parrox Game -------------
+
 https://play.google.com/store/apps/details?id=com.parrox.ParroxGame
 
 ------------ Memory Game -------------
+
 https://play.google.com/store/apps/details?id=com.sglib.MemoryChallenge
+
 https://itunes.apple.com/us/app/fun-memory-test/id1252865333?mt=8
 
 ------------ AR Video streaming App -------------
+
 https://www.youtube.com/watch?v=C8z95Psrkgg&t=8s
+
 https://www.youtube.com/watch?v=K6e2RrRYqf0&t=9s
 
+
 -------------	AR Cloud App --------------
+
 https://itunes.apple.com/us/app/pic-alive-video/id1248729537?ls=1&mt=8
+
 -------------	AR Live Coloring App --------------
+
 https://play.google.com/store/apps/details?id=com.flamingotouch.ARAlphabetAnimals
 
 -------------	Santa AR --------------
+
 https://itunes.apple.com/us/app/worldsantaar/id1299933621?ls=1&mt=8
 
 ---------- AR ------------
+
 https://itunes.apple.com/us/app/adventures-of-chara/id1155173924?mt=8
+
 https://play.google.com/store/apps/details?id=com.flamingotouch.Chara
+
 https://itunes.apple.com/us/app/alphabetanims/id1129969666?mt=8
+
 https://drive.google.com/open?id=0B0Zxxwu6NZ4mYlJtdThuZFZCTUE
 
+
 -------------- (VR/AR museum app) ---------------------
+
 https://itunes.apple.com/us/app/kou-dai-bo-wu-guan/id1075778424?mt=8
+
 ---------- fightingGame Video ------------
+
 https://drive.google.com/open?id=0B0Zxxwu6NZ4mXzd4R2ZvbEQ1MDg
 
 Racing game https://play.google.com/store/apps/details?id=com.aistudio.realspeedasphalt https://play.google.com/store/apps/details?id=com.at.highway.stunt.bike.riders https://play.google.com/store/apps/details?id=com.ddk.Carracing https://www.youtube.com/watch?v=e0RWdiLMJRE https://app-interactive-studio-bike-racing.en.aptoide.com/ https://www.apkmonk.com/app/com.aistudio.fastbikeracing/ https://drive.google.com/open?id=0By4OWtCtmrenN1MzRWxpUGhsSkU
