@@ -68,6 +68,8 @@ https://play.google.com/store/apps/details?id=com.drj.sweetapp.berrymatch3&hl=en
 
 ------------ Puzzle game -------------
 
+https://play.google.com/store/apps/details?id=com.lordof.rings&hl=en
+
 https://play.google.com/store/apps/details?id=com.bitmango.rolltheballunrollme
 
 https://itunes.apple.com/ph/app/roll-the-ball-slide-puzzle/id961875786?mt=8
@@ -75,7 +77,6 @@ https://itunes.apple.com/ph/app/roll-the-ball-slide-puzzle/id961875786?mt=8
 ------------ PipeFlow game -------------
 
 https://play.google.com/store/apps/details?id=com.sapparray.waterflow
-
 
 ------------ Dress App -------------
 
