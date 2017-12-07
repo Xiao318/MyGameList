@@ -12,8 +12,6 @@ https://itunes.apple.com/tw/app/hei-zhan-shenno-yong-zhe-xin/id864823769?mt=8
 
 ---------- HTC Game ------------
 
-http://vivefun.com/vivefun/
-
 https://www.youtube.com/watch?v=NFBQLmXgfAE
 
 https://youtu.be/GcJDYXnKD2Y
