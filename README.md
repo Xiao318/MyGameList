@@ -60,6 +60,8 @@ https://itunes.apple.com/us/app/face-monster-rush/id1234509563?mt=8
 
 ------------ Match3 game -------------
 
+https://play.google.com/store/apps/details?id=com.MobileGeniuses.CandyMatching3&hl=en
+
 https://play.google.com/store/apps/details?id=com.Pooh.EmojiCrush
 
 https://play.google.com/store/apps/details?id=com.drj.sweetapp.berrymatch3&hl=en
