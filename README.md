@@ -4,49 +4,88 @@ E-mail: amtrong318@gmail.com
 
 skype : BQ318
 
-VR games https://www.youtube.com/channel/UCYw55foFK0gTDATkqBYYoOw
-
 MMORPG
-
 https://play.google.com/store/apps/details?id=com.wot7.tw870sy&hl=zh_TW 
 https://itunes.apple.com/tw/app/hei-zhan-shenno-yong-zhe-xin/id864823769?mt=8
 
-MMORTS
+---------- HTC Game ------------
+http://vivefun.com/vivefun/
+https://www.youtube.com/watch?v=NFBQLmXgfAE
+https://youtu.be/GcJDYXnKD2Y
+https://youtu.be/PLtAzsm_C9k 
 
-https://play.google.com/store/apps/details?id=com.abc.AgeofKingdomsHD&hl=us 
-https://play.google.com/store/apps/details?id=com.lyleestudio.ageofkingdom.publish 
-https://itunes.apple.com/us/app/ageless-empire-nations-clash-battle/id830239327?mt=8 
-https://itunes.apple.com/us/app/age-of-empire-dragon-knights-nation-battle/id718070891?mt=8 
-https://itunes.apple.com/us/app/tiny-kingdom/id583262503?mt=8
+---------- RTS Game(Age of Kingdom) ------------
+https://play.google.com/store/apps/details?id=com.abc.AgeofKingdomsHD&hl=en
 
-Poker game https://play.google.com/store/apps/details?id=com.blizzard.wtcg.hearthstone&hl=en https://itunes.apple.com/vn/app/atmplus-game-b%C3%A0i-%C4%91%E1%BB%95i-th%C6%B0%E1%BB%9Fng/id1172744736?mt=8 https://itunes.apple.com/cn/app/%E5%BE%B7%E5%B7%9E%E6%89%91%E5%85%8B%E4%B9%8B%E5%A4%9C%E5%9B%BD%E9%99%85%E7%89%88-2017%E4%B8%8D%E7%8E%A9%E4%BC%9A%E5%90%8E%E6%82%94%E7%9A%84%E8%B6%85%E8%B5%9A%E6%A3%8B%E7%89%8C/id1173174571?mt=8 https://itunes.apple.com/us/app/%E8%B5%8C%E7%A5%9E%E5%BE%B7%E5%B7%9E%E4%B9%8B%E5%A4%9C-%E9%87%91%E5%B8%81%E7%89%88-%E8%B6%85%E9%AB%98%E5%9B%9E%E6%8A%A5%E5%BF%85%E8%B5%A2%E5%BE%B7%E5%B7%9E/id1236651029?mt=8 https://play.google.com/store/apps/details?id=com.cardking.dw_iap https://play.google.com/store/apps/details?id=com.trixonline.Trix https://itunes.apple.com/us/app/%D8%B7%D8%B1%D9%86%D9%8A%D8%A8/id902428862?mt=8
+---------- AR Zombie game ------------
+https://play.google.com/store/apps/details?id=com.maniaco.zombiewar360&hl=en
 
-AR game https://play.google.com/store/apps/details?id=com.maniaco.zombiewar360 https://www.zombiewar360.com/ https://drive.google.com/open?id=0By4OWtCtmrenM2VHTTBZcndab1k https://drive.google.com/open?id=0By4OWtCtmrend21OZzZITkdXbnc
+---------- Mobile CS game (MultiPlayer) ------------
+https://play.google.com/store/apps/details?id=com.gt.test&hl=en
+https://itunes.apple.com/us/app/real-counter-strike-online-fps/id1197863891?mt=8
+https://play.google.com/store/apps/details?id=com.counterterrorist.striketheterrorfps
 
-https://play.google.com/store/apps/details?id=com.ketchapp.stack https://itunes.apple.com/us/app/punching-buddy/id503965096?mt=8 http://parroxgame.com/ https://play.google.com/store/apps/details?id=com.liuqimi.wordsearch https://play.google.com/store/apps/details?id=com.sglib.MemoryChallenge https://itunes.apple.com/us/app/fun-memory-test/id1252865333?mt=8
+----------- Super Mario Game -----------
+https://play.google.com/store/apps/details?id=com.pooh.KrazyKris
+https://itunes.apple.com/us/app/krazy-kriss/id1224519085?ls=1&mt=8
 
-https://play.google.com/store/apps/details?id=com.stomstudio.monsterrush&hl=en https://itunes.apple.com/us/app/face-monster-rush/id1234509563?mt=8 https://play.google.com/store/apps/details?id=com.pooh.KrazyKris https://itunes.apple.com/us/app/krazy-kriss/id1224519085?ls=1&mt=8 https://drive.google.com/open?id=0BwS77LJFDVDcMHNmajA3TE1uWkE
+------------ Talking Tom -------------
+https://drive.google.com/open?id=0BwS77LJFDVDcMHNmajA3TE1uWkE
 
-https://play.google.com/store/apps/details?id=com.Fashion.Studio.Dress.Up https://play.google.com/store/apps/details?id=com.sapparray.waterflow https://play.google.com/store/apps/details?id=com.drj.sweetapp.berrymatch3&hl=en
+------------ Endless Runner game -------------
+https://drive.google.com/open?id=0BwS77LJFDVDcVlhHbzN1Qk1PUk0
 
-https://itunes.apple.com/us/app/fruitcards/id1252234875?ls=1&mt=8 https://play.google.com/store/apps/details?id=com.bag.citytraffic.car.racing.driver https://itunes.apple.com/app/id1176415186 https://www.dropbox.com/s/gse2qc7wdqfwo9d/TR_v.1.0_android.apk?dl=0 https://play.google.com/store/apps/details?id=com.extremegames.crazy.traffic.racer https://play.google.com/store/apps/details?id=com.mts.crash.revenge&hl=en https://play.google.com/store/apps/details?id=com.Off.Road.Truck.Cargo.Game https://play.google.com/store/apps/details?id=com.arrowhitech.furiousroad https://drive.google.com/file/d/0B4C8QW7wEpG_TmZwTnJzVjBCWW8/view https://play.google.com/store/apps/details?id=train.vs.carbattlespeed
+------------ Endless Monster Rush game -------------
+https://play.google.com/store/apps/details?id=com.stomstudio.monsterrush&hl=en
+https://itunes.apple.com/us/app/face-monster-rush/id1234509563?mt=8
 
-https://drive.google.com/open?id=0By4OWtCtmrend3JPWjJOWVQ3T1U https://play.google.com/store/apps/details?id=com.trixonline.Trix https://itunes.apple.com/us/app/punching-buddy/id503965096?mt=8 https://itunes.apple.com/my/app/elf-chase-rpg-endless-enemy-battle-run/id817026783?mt=8 https://play.google.com/store/apps/details?id=com.foodcookingmania.letscook https://itunes.apple.com/ie/app/streaker-run/id519321043?mt=8 https://drive.google.com/open?id=0By4OWtCtmrenLVVpcG9Ma3IyN2s
+------------ Match3 game -------------
+https://play.google.com/store/apps/details?id=com.Pooh.EmojiCrush
+https://play.google.com/store/apps/details?id=com.drj.sweetapp.berrymatch3&hl=en
+
+------------ Puzzle game -------------
+https://play.google.com/store/apps/details?id=com.bitmango.rolltheballunrollme
+https://itunes.apple.com/ph/app/roll-the-ball-slide-puzzle/id961875786?mt=8
+
+------------ PipeFlow game -------------
+https://play.google.com/store/apps/details?id=com.sapparray.waterflow
+
+------------ Dress App -------------
+https://play.google.com/store/apps/details?id=com.Fashion.Studio.Dress.Up
+
+------------ Tunnel Rush -------------
+https://play.google.com/store/apps/details?id=com.cuc.TunnelRush
+
+------------ Parrox Game -------------
+https://play.google.com/store/apps/details?id=com.parrox.ParroxGame
+
+------------ Memory Game -------------
+https://play.google.com/store/apps/details?id=com.sglib.MemoryChallenge
+https://itunes.apple.com/us/app/fun-memory-test/id1252865333?mt=8
+
+------------ AR Video streaming App -------------
+https://www.youtube.com/watch?v=C8z95Psrkgg&t=8s
+https://www.youtube.com/watch?v=K6e2RrRYqf0&t=9s
+
+-------------	AR Cloud App --------------
+https://itunes.apple.com/us/app/pic-alive-video/id1248729537?ls=1&mt=8
+-------------	AR Live Coloring App --------------
+https://play.google.com/store/apps/details?id=com.flamingotouch.ARAlphabetAnimals
+
+-------------	Santa AR --------------
+https://itunes.apple.com/us/app/worldsantaar/id1299933621?ls=1&mt=8
+
+---------- AR ------------
+https://itunes.apple.com/us/app/adventures-of-chara/id1155173924?mt=8
+https://play.google.com/store/apps/details?id=com.flamingotouch.Chara
+https://itunes.apple.com/us/app/alphabetanims/id1129969666?mt=8
+https://drive.google.com/open?id=0B0Zxxwu6NZ4mYlJtdThuZFZCTUE
+
+-------------- (VR/AR museum app) ---------------------
+https://itunes.apple.com/us/app/kou-dai-bo-wu-guan/id1075778424?mt=8
+---------- fightingGame Video ------------
+https://drive.google.com/open?id=0B0Zxxwu6NZ4mXzd4R2ZvbEQ1MDg
 
 Racing game https://play.google.com/store/apps/details?id=com.aistudio.realspeedasphalt https://play.google.com/store/apps/details?id=com.at.highway.stunt.bike.riders https://play.google.com/store/apps/details?id=com.ddk.Carracing https://www.youtube.com/watch?v=e0RWdiLMJRE https://app-interactive-studio-bike-racing.en.aptoide.com/ https://www.apkmonk.com/app/com.aistudio.fastbikeracing/ https://drive.google.com/open?id=0By4OWtCtmrenN1MzRWxpUGhsSkU
-
-8 Ball game https://drive.google.com/open?id=0By4OWtCtmrenSGpLSU4yRUJsSjg https://drive.google.com/open?id=0By4OWtCtmrend21OZzZITkdXbnc
-
-Online multiplayer strike games https://play.google.com/store/apps/details?id=com.gt.test&hl=en https://itunes.apple.com/us/app/real-counter-strike-online-fps/id1197863891?mt=8 https://play.google.com/store/apps/details?id=com.counterterrorist.striketheterrorfps
-
-AR coloring app https://play.google.com/store/search?q=flamingotouch https://play.google.com/store/apps/details?id=com.flamingotouch.Chara https://play.google.com/store/apps/details?id=com.Twservices.App4DMais&hl=en
-
-Match 3 games https://play.google.com/store/apps/details?id=com.MobileGeniuses.CandyMatching3&hl=en https://drive.google.com/open?id=0By4OWtCtmrenLU9lVk42SzFNLXc https://drive.google.com/open?id=0By4OWtCtmrenUHNTMm5OX1RyLUE https://drive.google.com/open?id=0By4OWtCtmrenYU5wRUZ1U0hHbXM https://drive.google.com/open?id=0By4OWtCtmrenanQtMnREb3ByYnM https://drive.google.com/open?id=0By4OWtCtmreneW1ZbURBcktzTVE
-
-https://drive.google.com/open?id=0By4OWtCtmrenckx6WDFJMW5KRTA https://drive.google.com/open?id=0By4OWtCtmrenV3hwVkQ1OVdlOE0 https://drive.google.com/open?id=0By4OWtCtmrena0lRYkJKbVRwWFE https://drive.google.com/open?id=0By4OWtCtmrenZFExNHozREtLQ1k
-
-Fighting game https://play.google.com/store/apps/details?id=com.quantl.MonkeyGod1&hl=en https://drive.google.com/open?id=0B0Zxxwu6NZ4mYVFmNmJEdWc1VXc
-
-1 BeerRightNow https://play.google.com/store/apps/details?id=com.beerrightnow.jon 2 CRC Publication https://play.google.com/store/apps/details?id=cosmos.ebook 3 Hasaedu https://play.google.com/store/apps/details?id=com.saudi.hasaedu 4 IV-Tap https://play.google.com/store/apps/details?id=com.nurse.drug.medical 5 LGUplusPrint https://play.google.com/store/apps/details?id=com.inity.lguplusprint 6 My Unitel https://play.google.com/store/apps/details?id=com.myunitel.activities&hl=en 7 PreAlgebra https://play.google.com/store/apps/details?id=com.myunitel.activities&hl=en 8 SellShed https://itunes.apple.com/us/app/sellshed/id912676976?mt=8 9 Pocket Spelling Bee https://itunes.apple.com/us/app/pocket-spelling-bee/id929148886?mt=8 10 CourtVision https://itunes.apple.com/us/app/courtvision-squash-strategy/id943597863?mt=8 11 Snapify https://itunes.apple.com/us/app/snapify/id791071132?mt=8 ... ... ...
 
 iOS Native/Social/Game Apps No Name URL 1 Telephone Game Misinterpreted http://www.apppicker.com/apps/953391823/telephone-game-misinterpreted 2 Hawaiian Alphabet https://itunes.apple.com/us/app/hawaiian-alphabet/id898477599?mt=8 3 CashInLine https://itunes.apple.com/us/app/stay-in-the-line/id871434635?mt=8 4 BubbleConnect https://itunes.apple.com/us/app/dot-line/id485538133?mt=8 5 100 pingpong https://itunes.apple.com/us/app/100-balls/id848218959?mt=8 6 EpicCrash https://itunes.apple.com/us/app/epic-crash/id950764139?mt=8 7 CaveBird https://itunes.apple.com/us/app/cave-birds/id828198655?mt=8 8 Avoid the Circles https://itunes.apple.com/us/app/avoid-the-circles/id884548529?mt=8 9 SwapJump https://itunes.apple.com/us/app/swap-jump/id892011702?mt=8 10 HungrySnail https://itunes.apple.com/us/app/hungry-snail/id468482763?mt=8 11 JetPack https://itunes.apple.com/mn/app/jetpack-joyride/id457446957?mt=8 12 RigRun https://itunes.apple.com/PL/app/id890277281 13 WrongWay2 https://itunes.apple.com/gb/app/wrong-way-2/id890379453?mt=8 14 GemDots https://itunes.apple.com/app/id982209467 15 NoBrackes https://itunes.apple.com/us/app/no-brakes/id852250176?mt=8 16 LingLing https://itunes.apple.com/us/app/ling-ling/id615973020?mt=8 17 FruitNinja https://itunes.apple.com/en/app/fruit-ninja/id362949845?mt=8
