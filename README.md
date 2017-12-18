@@ -100,7 +100,6 @@ https://www.youtube.com/watch?v=C8z95Psrkgg&t=8s
 
 https://www.youtube.com/watch?v=K6e2RrRYqf0&t=9s
 
-
 -------------	AR Cloud App --------------
 
 https://itunes.apple.com/us/app/pic-alive-video/id1248729537?ls=1&mt=8
@@ -112,6 +111,8 @@ https://play.google.com/store/apps/details?id=com.flamingotouch.ARAlphabetAnimal
 -------------	Santa AR --------------
 
 https://itunes.apple.com/us/app/worldsantaar/id1299933621?ls=1&mt=8
+
+https://play.google.com/store/apps/details?id=com.vrpark.magicgift&hl=en
 
 ---------- AR ------------
 
