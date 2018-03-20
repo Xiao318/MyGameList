@@ -18,6 +18,15 @@ https://youtu.be/GcJDYXnKD2Y
 
 https://youtu.be/PLtAzsm_C9k 
 
+-------- Oculus Rift VR ----------
+https://www.oculus.com/experiences/rift/575992462525226/
+
+-------- Gear VR ----------
+https://www.oculus.com/experiences/gear-vr/1464350177018247/
+
+-------- Kinect ----------
+https://drive.google.com/open?id=0B1FK9SkCRFTfQkFRclJyVy1zMWc
+
 ---------- RTS Game(Age of Kingdom) ------------
 
 https://play.google.com/store/apps/details?id=com.abc.AgeofKingdomsHD&hl=en
