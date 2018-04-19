@@ -9,6 +9,7 @@ https://play.google.com/store/apps/details?id=com.wot7.tw870sy&hl=zh_TW
 
 https://itunes.apple.com/tw/app/hei-zhan-shenno-yong-zhe-xin/id864823769?mt=8
 
+https://itunes.apple.com/us/app/stormont-trails/id1353382045?platform=iphone&preserveScrollPosition=true#platform/iphone
 
 ---------- HTC Game ------------
 
