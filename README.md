@@ -26,6 +26,10 @@ https://www.oculus.com/experiences/rift/575992462525226/
 https://www.oculus.com/experiences/gear-vr/1464350177018247/
 
 -------- Kinect ----------
+https://www.youtube.com/watch?v=1jbvnk1T4vQ
+
+https://youtu.be/SHickY0NY-Y
+
 https://drive.google.com/open?id=0B1FK9SkCRFTfQkFRclJyVy1zMWc
 
 ---------- RTS Game(Age of Kingdom) ------------
