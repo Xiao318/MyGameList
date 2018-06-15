@@ -157,7 +157,7 @@ https://drive.google.com/open?id=0B0Zxxwu6NZ4mYlJtdThuZFZCTUE
 
 https://itunes.apple.com/us/app/kou-dai-bo-wu-guan/id1075778424?mt=8
 
--------------- Education app based GPS location ---------------------
+-------------- GPS location based Education app ---------------------
 
 https://itunes.apple.com/us/app/farset-river/id1287126964?mt=8
 
