@@ -45,6 +45,9 @@ https://play.google.com/store/apps/details?id=com.wot7.tw870sy&hl=zh_TW
 
 https://itunes.apple.com/tw/app/hei-zhan-shenno-yong-zhe-xin/id864823769?mt=8
 
+---------- Ludo Game ------------
+https://play.google.com/store/apps/details?id=com.ludo.masters
+
 ---------- 8 ball game ------------
 
 https://drive.google.com/open?id=1Oey85uJr0fN8ZcG83G2WjEHKUk3U7JE5
