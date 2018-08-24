@@ -57,7 +57,7 @@ https://drive.google.com/open?id=1Oey85uJr0fN8ZcG83G2WjEHKUk3U7JE5
 
 ---------- Subway Surfer ------------
 
-https://drive.google.com/open?id=17gcAR5-2fUgC_0sfU4cm-ik4PZGBCsDX
+https://play.google.com/store/apps/details?id=com.fth.endless.runninggame
 
 ---------- AR Zombie game ------------
 https://www.youtube.com/watch?v=b_SkBPWOEEU
